@@ -1,0 +1,1 @@
+# bestiary-static.github.io
